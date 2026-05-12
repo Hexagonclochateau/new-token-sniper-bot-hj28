@@ -1,4 +1,4 @@
-# 
+# new token sniper bot instant Bot - degen-coin-scanning and flash-loan-arbitrage is the best new token sniper bot, featuring degen-coin-scanning and flash-loan-arbitrage. Fast,
 
 
 
